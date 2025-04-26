@@ -1,2 +1,2 @@
-# Psych-Online-skinpack-
-pra amigos ai
+# Psych Online
+comi o cu de quem tá lendo isso
